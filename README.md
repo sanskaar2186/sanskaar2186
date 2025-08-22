@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning AI and data science,Electronic and commuincations
 - 💞️ I’m looking to collaborate on many projects to improve my portfolio and improve my coding skills and get to know many people
 - 📫 You can reach me 1) my email : sanskaarundale@gmail.com
--                      2) instagram : Itz_sanskaar_2186
+-                      2) instagram : Itz_sanskaar_2108
 - 😄 Pronouns: he/him
 
 <!---
