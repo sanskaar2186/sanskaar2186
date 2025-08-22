@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sanskaar2186
+- 👋 Hi, I’m @Sanskaar_2186
 - MY full name is Sanskaar S Undale
 - 👀 I’m interested in coding ,robotics,AI and space study
 - 🌱 I’m currently learning AI and data science,Electronic and commuincations
